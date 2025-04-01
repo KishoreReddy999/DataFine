@@ -1,0 +1,1 @@
+Kishore K Reddy is a Post Graduate in Management from Birla Institute of Management Technology (BIMTECH) and also holds an Advanced Management degree from the Indian School of Business (ISB), Hyderabad. He is a seasoned banking professional and analytics enthusiast who works at the confluence of finance and emerging technologies of the future.
